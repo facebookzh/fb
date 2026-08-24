@@ -1,4 +1,4 @@
-如何选择优质Facebook账号.md：如何选择优质Facebook账号
+如何选择优质Facebook账号
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
