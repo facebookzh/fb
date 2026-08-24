@@ -1,4 +1,4 @@
-Facebook账号购买平台测评.md：Facebook账号购买平台测评
+Facebook账号购买平台测评
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
