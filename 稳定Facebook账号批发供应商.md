@@ -1,4 +1,4 @@
-稳定Facebook账号批发供应商.md：稳定Facebook账号批发供应商怎么选？
+稳定Facebook账号批发供应商怎么选？
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
