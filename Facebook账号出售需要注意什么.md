@@ -1,4 +1,4 @@
-Facebook账号出售需要注意什么.md：Facebook账号出售需要注意什么
+Facebook账号出售需要注意什么
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
