@@ -1,4 +1,4 @@
-Facebook账号批发价格表.md：Facebook账号批发价格表
+Facebook账号批发价格表
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
