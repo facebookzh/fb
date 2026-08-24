@@ -1,4 +1,4 @@
-Facebook账号出售优选平台.md：Facebook账号出售优选平台
+Facebook账号出售优选平台
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
