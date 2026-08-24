@@ -1,4 +1,4 @@
-Facebook账号购买技巧分享.md：Facebook账号购买技巧分享
+Facebook账号购买技巧分享
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
