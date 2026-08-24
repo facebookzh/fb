@@ -1,4 +1,4 @@
-Facebook账号购买渠道汇总.md：Facebook账号购买渠道汇总
+Facebook账号购买渠道汇总
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
