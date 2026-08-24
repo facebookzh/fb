@@ -1,4 +1,4 @@
-Facebook账号出售安全交易方法.md：Facebook账号出售安全交易方法
+Facebook账号出售安全交易方法
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
