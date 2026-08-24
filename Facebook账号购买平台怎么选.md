@@ -1,4 +1,4 @@
-Facebook账号购买平台怎么选.md：Facebook账号购买平台怎么选
+Facebook账号购买平台怎么选
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
