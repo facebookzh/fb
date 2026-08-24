@@ -1,4 +1,4 @@
-企业Facebook账号购买方案.md：企业Facebook账号购买方案
+企业Facebook账号购买方案
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
