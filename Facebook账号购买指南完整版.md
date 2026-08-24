@@ -1,4 +1,4 @@
-Facebook账号购买指南完整版.md：Facebook账号购买指南完整版
+Facebook账号购买指南完整版
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
