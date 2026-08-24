@@ -1,4 +1,4 @@
-Facebook账号出售渠道大全.md：Facebook账号出售渠道大全
+Facebook账号出售渠道大全
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
