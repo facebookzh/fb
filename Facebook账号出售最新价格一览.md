@@ -1,4 +1,4 @@
-Facebook账号出售最新价格一览.md：Facebook账号出售最新价格一览
+Facebook账号出售最新价格一览
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
