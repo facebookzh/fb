@@ -1,10 +1,8 @@
-FB广告户是什么？新手必看完整指南.md：
+FB广告户是什么？新手必看完整指南
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
 [![➡️➡️➡️Fb账号资源购买商城下单](https://raw.githubusercontent.com/facebookzh/fb/main/images/202608241935207666.png)](https://9527shop.com/)
-
-FB广告户是什么？新手必看完整指南
 
 FB广告户，简单来说就是用于在 Facebook（meta）平台投放广告的广告账户。通过广告户，企业或个人可以创建广告、设置预算、选择目标受众、上传素材、绑定支付方式，并查看广告效果数据。
 
