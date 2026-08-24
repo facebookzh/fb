@@ -1,10 +1,8 @@
-FB广告户供应商排行榜.md：
+FB广告户供应商排行榜
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
 [![➡️➡️➡️Fb账号资源购买商城下单](https://raw.githubusercontent.com/facebookzh/fb/main/images/202608241935207666.png)](https://9527shop.com/)
-
-FB广告户供应商排行榜
 
 如果你想找“FB广告户供应商排行榜”，需要先说明：目前没有一个由meta官方发布、按照“广告户供应商实力”进行排名的公开排行榜。因此，直接给供应商排第1、第2、第3并不严谨。
 
