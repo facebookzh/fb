@@ -1,4 +1,4 @@
-Facebook账号出售快速交付.md：Facebook账号出售快速交付
+Facebook账号出售快速交付
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
