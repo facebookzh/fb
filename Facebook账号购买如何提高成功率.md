@@ -1,4 +1,4 @@
-Facebook账号购买如何提高成功率.md：Facebook账号购买如何提高成功率
+Facebook账号购买如何提高成功率
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
