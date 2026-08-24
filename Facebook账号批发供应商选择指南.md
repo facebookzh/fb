@@ -1,4 +1,4 @@
-Facebook账号批发供应商选择指南.md：Facebook账号批发供应商选择指南
+Facebook账号批发供应商选择指南
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
