@@ -1,4 +1,4 @@
-Facebook账号购买如何选择供应商.md：Facebook账号购买如何选择供应商
+Facebook账号购买如何选择供应商
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
