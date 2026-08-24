@@ -1,4 +1,4 @@
-Facebook账号批发合作共赢.md：Facebook账号批发合作共赢
+Facebook账号批发合作共赢
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
