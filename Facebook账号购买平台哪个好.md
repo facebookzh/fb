@@ -1,4 +1,4 @@
-Facebook账号购买平台哪个好.md：Facebook账号购买平台哪个好
+Facebook账号购买平台哪个好
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
