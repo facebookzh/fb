@@ -1,10 +1,8 @@
-FB广告户如何管理多个账户.md：
+Q：FB广告户如何管理多个账户？
 
 [➡️➡️➡️Fb账号资源购买商城下单](https://9527shop.com/)
 
 [![➡️➡️➡️Fb账号资源购买商城下单](https://raw.githubusercontent.com/facebookzh/fb/main/images/202608241935207666.png)](https://9527shop.com/)
-
-Q：FB广告户如何管理多个账户？
 
 A： 如果企业同时运营多个FB广告户，建议使用meta Business Portfolio进行统一管理，而不是让员工分别登录多个个人账号。meta官方的Business Portfolio支持集中管理账户、人员权限、安全和品牌安全。
 
